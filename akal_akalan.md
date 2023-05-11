@@ -23,5 +23,4 @@ si goblok
 
 > Kabur. Pengecut.
 
-Christians save your forks, okay.
-
+Aku sebenernya masih di dunia terus sepertinya pas aku solat di mesjid Bandung, terus kata malaikat yang menjelma jadi manusia dan menjadi seorang imam yang sedang berkhutbah tuh gini "Isa tuh takut meninggal, makanya diangkat oleh Allah SWT.." dan aku baru tau bahwa aku adalah bapaknya literally, jadi ribet lah ya pokoknya bapaknya dia dua, aku sama Muhammad bin Abdullah saw., iya rasul, suamiku.
