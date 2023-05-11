@@ -7,6 +7,7 @@ si goblok
 - Chemistry on human brains manipulated.
   - "biar dicepetin aja kan, aing anak papa/papi."
   - anying anak aing taunya gitu aja, ga tau dampak kesananya gimana, terhadap attraction dia, that's why besoknya kayak ga ada apa apa kan, jadinya "enggak deh, maaf yah", you're not disgusting, be a classy bitch, hide hide habis di ewe, but your implementation is wrong. but you are disgusting for the complete picture for Adik and Aa family, cause ew, who wants a bitch that actually disgusting like animal. (sic)
+    - bisi kamu gak tau ya (sic) teh apa, bukannya berarti kalimatnya salah, cuman salah struktur kalimatnya aja, anying sia, Isa, diem, my idea, my thoughts are mine, jangan bikin mind fog segala, kalo curi, aing kasih tau, ke my real father, our God, (bukan mengambil seorang anak ya, this is figuratively, I'm a muslim), pokoknya gitulah ya.  yang salah. GOBLOK ANAK AING anying. a disgusting bitch, buat keluarga aku sama Aa saw., disappointment.
 
 > Disappointment.
 
