@@ -9,4 +9,8 @@ si goblok
 
 > Meninggal sebagai pengecut.
 
-> 
+> Manipulative son. Padahal udah enak naik ke atas.
+
+> Coba meninggal sebenernya sok.
+
+>
