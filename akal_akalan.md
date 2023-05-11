@@ -13,4 +13,4 @@ si goblok
 
 > Coba meninggal sebenernya sok.
 
->
+> Coba kalo kamu lebih pinter, ya udah lah ya, a mistake? actually lessons though, everybody receives them.
