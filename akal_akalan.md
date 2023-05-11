@@ -4,6 +4,9 @@ si goblok
 - Bikin aing mind fog
 - Goblok, cenah mau ikut-ikutan ngomong kasar, tapi dia asal sebut, terus oh iya cing papi ngomong donggggg bahasa kasar
   - udahlah jablay, segala bisa, segala dipake, bisa ngomong kasar, disebut
+- Chemistry on human brains manipulated.
+  - "biar dicepetin aja kan, aing anak papa/papi."
+  - anying anak aing taunya gitu aja, ga tau dampak kesananya gimana, terhadap attraction dia, that's why besoknya kayak ga ada apa apa kan, jadinya "enggak deh, maaf yah", you're not disgusting, be a classy bitch, hide hide habis di ewe, but your implementation is wrong. but you are disgusting for the complete picture for Adik and Aa family, cause ew, who wants a bitch that actually disgusting like animal.
 
 > Disappointment.
 
