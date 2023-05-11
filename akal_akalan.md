@@ -21,7 +21,7 @@ si goblok
 
 > Lupa katanya.
 
-> K____.
+> Kabur. Pengecut.
 
 Christians save your forks, okay.
 
