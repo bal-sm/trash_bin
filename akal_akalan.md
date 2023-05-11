@@ -7,4 +7,6 @@ si goblok
 
 > Disappointment.
 
+> Meninggal sebagai pengecut.
+
 > 
