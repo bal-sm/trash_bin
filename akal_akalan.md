@@ -19,5 +19,7 @@ si goblok
 
 > Isa jangan main-main. Maneh meninggal atau apa.
 
-> L___
+> Lupa katanya.
+
+> K____.
 
